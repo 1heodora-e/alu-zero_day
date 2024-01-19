@@ -1,2 +1,2 @@
-Fried  chicken
+Fried  chicken with Yoghurt
 
